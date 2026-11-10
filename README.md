@@ -65,6 +65,4 @@ I believe that understanding law requires more than familiarity with statutory p
 **Shiyara Rajan** 
 B.A. LL.B. (Hons.) | First Class Graduate
 
-Learning the law. Understanding justice. Building a profession.
-
 *Learning the law. Understanding justice. Building a profession.*
