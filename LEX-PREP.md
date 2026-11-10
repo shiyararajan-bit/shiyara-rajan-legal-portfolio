@@ -66,6 +66,3 @@ Rather than limiting our knowledge to individual academic achievements, we wante
 LEX PREP is envisioned as a continuing academic initiative with scope for expanding its subject coverage, developing structured learning resources and supporting law students in their academic and professional development.
 LEX PREP; LEARN PREPARE PERFOM
 Where Preparation Meets Performance 
-**LEX PREP – Learn. Understand. Prepare.**
-
-*An initiative built on shared knowledge, academic experience and the belief that learning becomes more meaningful when it is shared.*
