@@ -64,5 +64,6 @@ Rather than limiting our knowledge to individual academic achievements, we wante
 ## 7. The Road Ahead
 
 LEX PREP is envisioned as a continuing academic initiative with scope for expanding its subject coverage, developing structured learning resources and supporting law students in their academic and professional development.
-LEX PREP; LEARN PREPARE PERFOM
+
+## LEX PREP; LEARN PREPARE PERFOM
 Where Preparation Meets Performance 
