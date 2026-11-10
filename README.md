@@ -66,6 +66,5 @@ I believe that understanding law requires more than familiarity with statutory p
 B.A. LL.B. (Hons.) | First Class Graduate
 
 Learning the law. Understanding justice. Building a profession.
-B.A. LL.B. (Hons.) | First Class Graduate
 
 *Learning the law. Understanding justice. Building a profession.*
